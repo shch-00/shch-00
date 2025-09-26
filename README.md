@@ -33,7 +33,7 @@
 
 ### Связь:
 - Email: **<a href="mailto:glu.3313marl.46@hotmail.com">glu.3313marl.46@hotmail.com</a>**
-- Telegram: [@yourhandle](https://t.me/ashas_alos)
+- Telegram: [@ashas_alos](https://t.me/ashas_alos)
 
 ---
 
